@@ -3,4 +3,4 @@
 - Feel free to check out my projects and get in contact with any questions.
   
 - Reach me at: cmsavage@scribecheck.net
-- Find me at: scribecheck.net
+- Find me at: https://scribecheck.net
